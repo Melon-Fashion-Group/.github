@@ -12,4 +12,4 @@
   
 🌃 We value attention to detail in any thing we create, also in the development of digital products, from UI · UX design to architectural approach and design patterns.
 
-📺 You can follow us on [Telegram](https://t.me/melon_fashion_group), [VK](https://vk.com/melon_fashion_group?t2fs=616d44f425e30c27a0_2), as well as on the [youtube](https://www.youtube.com/channel/UC5D2x34d_ysC0h6GHRs-SsQ). 
+📺 You can follow us on [Telegram](https://t.me/melon_fashion_group), [VK](https://vk.com/melon_fashion_group?t2fs=616d44f425e30c27a0_2), as well as on the [Youtube](https://www.youtube.com/channel/UC5D2x34d_ysC0h6GHRs-SsQ). 
